@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 
-**amandanvilalva/amandanvilalva**
+**amanda nogueira vilalva**
 
 
 
